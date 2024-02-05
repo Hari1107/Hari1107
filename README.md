@@ -3,7 +3,7 @@
 
 - 💬 Ask me about **Java, Full stack,Career Advice,TeamWork, Sports Activity**
 
-- 📫 How to reach me **hariharan.k1107@gmail.com**
+- 📫 You can reach me through this **hariharan.k1107@gmail.com**
 
 
 ## 🌐 Socials:
